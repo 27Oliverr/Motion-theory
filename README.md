@@ -1,2 +1,0 @@
-# Motion-theory
-Photo Gallery
